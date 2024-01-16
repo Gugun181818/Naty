@@ -1,0 +1,2 @@
+# Naty
+Keinginan yg hakiki
